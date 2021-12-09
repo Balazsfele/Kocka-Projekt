@@ -1,2 +1,8 @@
 # Cube-Project
-myrepo why not xdxd
+I add here some good things like
+-youtube
+-twitch
+-discord bots
+-discord servers
+-my projects
+-etc.
